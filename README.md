@@ -1,10 +1,12 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) My name is Cobus
+<img width="296" height="296" alt="giphy (1)" src="https://github.com/user-attachments/assets/37b534df-f1c4-417a-bea4-fcb1aa6905c0" />
+
+ My name is Cobus
 ==============================================================================================================================
 
 Ultimate unemployment
 ---------------------
 
-<img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/71f78822-9b7e-42d7-8779-f473a70a632b" />
+<img width="480" height="480" alt="giphy" src="https://github.com/user-attachments/assets/4f2b66f5-39b1-4e5e-8675-80f09d3f981d" />
 
 
 * 🌍  I'm based in Hong Kong
