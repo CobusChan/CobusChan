@@ -4,6 +4,9 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Ultimate unemployment
 ---------------------
 
+<img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/71f78822-9b7e-42d7-8779-f473a70a632b" />
+
+
 * 🌍  I'm based in Hong Kong
 * ✉️  You can contact me at [cobuscyf@gmail.com](mailto:cobuscyf@gmail.com)
 
