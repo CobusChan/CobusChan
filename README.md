@@ -3,7 +3,7 @@
  My name is Cobus
 ==============================================================================================================================
 
-Ultimate unemployment | *Best vibe coder on my apartment*
+Ultimate unemployment | *Best vibe coder on my apartment* | Student
 ---------------------
 
 <img width="480" height="480" alt="giphy" src="https://github.com/user-attachments/assets/4f2b66f5-39b1-4e5e-8675-80f09d3f981d" />
